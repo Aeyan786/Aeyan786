@@ -16,7 +16,7 @@
 
 ### 🔗 Contact Me
 
-- 📧 Email: [www.aeyanraza786@gmail.com](mailto:www.aeyanraza65@gmail.com)
+- 📧 Email: [www.aeyanraza65@gmail.com](mailto:www.aeyanraza65@gmail.com)
 - 🌐 Portfolio: *[soon...]*
 
 ---
