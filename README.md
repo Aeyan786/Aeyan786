@@ -17,7 +17,7 @@
 ### 🔗 Contact Me
 
 - 📧 Email: [www.aeyanraza65@gmail.com](mailto:www.aeyanraza65@gmail.com)
-- 🌐 Portfolio: *[soon...]*
+- 🌐 Portfolio: *[view Portfolio](https://portfolio-mohammad-aeyan-raza.vercel.app)*
 
 ---
 
